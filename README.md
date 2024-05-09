@@ -43,10 +43,10 @@ Apple Inc. continues to be a leader in the consumer tech industry, with a focus 
 Investopedia.com/SteveJobsandtheAppleStory
 
 https://scholarblogs.emory.edu/gbsl/this-day-in-business-history-apple-inc-is-founded-by-steve-jobs-and-steve-wozniak/
-
 https://gctv.com/how-did-steve-jobs-start-apple/
 
-allaboutstevejobs.com/bio/key_people/mike_murkkula
+[allaboutstevejobs.com/bio/key_people/mike_murkkula](https://allaboutstevejobs.com/bio/key_people/mike_markkula)
+
 
 https://www.fool.com/investing/2019/11/24/if-you-invested-100-in-apples-ipo-this-is-how-much.aspx
 
