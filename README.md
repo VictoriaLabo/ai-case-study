@@ -39,3 +39,14 @@ GPS technology which is already widely used would provide real-time location tra
 ## **Conclusion:**
 Apple Inc. continues to be a leader in the consumer tech industry, with a focus on innovation, sustainability, and customer satisfaction. The company's strong brand, ecosystem, and commitment to excellence position it for continued success in the future.
 
+## **References:**
+Investopedia.com/SteveJobsandtheAppleStory
+https://scholarblogs.emory.edu/gbsl/this-day-in-business-history-apple-inc-is-founded-by-steve-jobs-and-steve-wozniak/
+https://gctv.com/how-did-steve-jobs-start-apple/
+allaboutstevejobs.com/bio/key_people/mike_murkkula
+https://www.fool.com/investing/2019/11/24/if-you-invested-100-in-apples-ipo-this-is-how-much.aspx
+https://investor.apple.com
+https://finance.yahoo.com/news/apple-continues-being-mysterious-ai-154110337.html
+https://economictimes.indiatimes.com/news/international/business/why-iphone-is-no-more-the-apple-of-chinas-eyes/articleshow/108903872.cms?from=mdr 
+https://www.insidehook.com/culture/apple-products-user-age#:~:text=A%20new%20study%20by%20CIRP,Macs%20are%2035%20and%20under.&text=Apple%20CEO%20Tim%20Cook%20and,Store%20on%20September%2016%2C%202022
+https://investor.apple.com/sec-filings/sec-filings-details/default.aspx?FilingId=17506845
